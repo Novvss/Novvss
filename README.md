@@ -1,4 +1,7 @@
-## Hi there 👋
+## SKIBIDITOILET69
+# Skib / jasper / ezra / novus!
+
+
 
 <!--
 **Novvss/Novvss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
