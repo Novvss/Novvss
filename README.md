@@ -5,10 +5,21 @@ he / any . transmasc genderqueer . bi . 15 . audhd anxiety
 
 idm what u call me, he is preferred
 
-typically w2i. ill whisper at first interaction but past that I like whispering and public chat. its ur choice
+typically w2i. ill whisper at first interaction but past that I like whispering and public chat. its ur choice!
+
 easily overwhelmed, yes pixels on my screen can stress me out
-do NOT flirt with me. PERIOD. it makes me really uncomfy
+
+do NOT flirt with me. PERIOD. it makes me really uncomfy esp as i have a bf
+
 c+h always! i like making new friends. the only time i say not to int if my thing is on busy or im on dni
+
+please do not insult ships i enjoy or comf characters of mine. these mainly include:
+- shadowsugar
+- satosugu
+- vox (hazbin)
+- shadow milk cookie
+- butter roll cookie
+- gim cookie
 
 dni
 - basic dni
