@@ -16,14 +16,28 @@ c+h always! i like making new friends. the only time i say not to int if my thin
 please do not insult ships i enjoy or comf characters of mine. these mainly include:
 - shadowsugar
 - satosugu
+- shadowvanilla
+- hollytaya
+- firewind
+- ashfire (lord of ash x fire spirit)
+- ravenwind (night raven x wind archer)
+- purecluse (pv x recluse)
+- eldersalt
+- purecacao
+- burningcacao
+- goldenlily
 - vox (hazbin)
+- N (pokemon)
+- luka (alnst)
+- flins (genshin)
+- kaveh (genshin)
 - shadow milk cookie
 - butter roll cookie
 - gim cookie
 
 dni
 - basic dni
-- pr0ship / darkship
+- pr0ship / darkship (youll notice i ship a lot of selfcest. comshipping is completely ok as long as it isn't illegal content)
 - lesboys / gaygirls
 - obnoxious people
 - hazbin/helluva fandom
