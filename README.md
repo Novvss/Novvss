@@ -3,9 +3,11 @@
 
 he / it . transmasc genderqueer . bi . 15 . audhd anxiety
 
+# I AM EXTREMELY LOW EMPATHY! PLEASE KEEP THIS IN MIND WHEN INTERACTING WITH ME!
+
 do not use they/them on me. my pronouns are he/it and nothing else! thank you
 
-Anything past this point is content mainly for ponytown only! i am inactive on github otherwise.
+## Anything past this point is content mainly for ponytown only! i am inactive on github otherwise.
 
 typically w2i. ill whisper at first interaction but past that I like whispering and public chat. its ur choice!
 
