@@ -1,9 +1,11 @@
 # SKIBIDITOILET69
 ## Skib / jasper / ezra / novus
 
-he / any . transmasc genderqueer . bi . 15 . audhd anxiety
+he / it . transmasc genderqueer . bi . 15 . audhd anxiety
 
-idm what u call me, he is preferred
+do not use they/them on me. my pronouns are he/it and nothing else! thank you
+
+Anything past this point is content mainly for ponytown only! i am inactive on github otherwise.
 
 typically w2i. ill whisper at first interaction but past that I like whispering and public chat. its ur choice!
 
@@ -52,6 +54,7 @@ byi
 - i like comfort from friends when im on busy. i'm not expecting anything, ofc. if we're conversing and i get overwhelmed ill ask to move or stay in whispers so i can distract myself from whatevers going on.
 
 i hide people i dont like. i dont have many hidden but if you pmo and i stop responding youre probably hidden
+
 i dont friend people i dont know well
 
 thats it..! ily ponytown
