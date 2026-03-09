@@ -11,6 +11,8 @@ do not use they/them on me. my pronouns are he/it and nothing else! thank you
 
 typically w2i. ill whisper at first interaction but past that I like whispering and public chat. its ur choice!
 
+I have a very mild touch trigger. C+H is fine ALWAYS (unless on busy), but please do not excessively boop me or act out strange things with my pony. it makes me ridiculously uncomfortable.
+
 easily overwhelmed, yes pixels on my screen can stress me out
 
 do NOT flirt with me. PERIOD. it makes me really uncomfy esp as i have a bf
