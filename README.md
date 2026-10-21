@@ -9,71 +9,31 @@ do not use they/them on me. my pronouns are he/it and nothing else! thank you
 
 ## Anything past this point is content mainly for ponytown only! i am inactive on github otherwise.
 
-typically w2i. ill whisper at first interaction but past that I like whispering and public chat. its ur choice!
+*BYI!*
+- I have a mild touch trigger! if the pony says c+h, that's fine, but excessive booping, crowding, kissing, or in-general being a weirdo will make me very uncomfy.
+- I am PLURAL. my ponies are attached to different alters, but me switching ponies does NOT account to a switch. MOST alters will have multiple ponies they like to have, and may not even have a pony to represent themself yet. Don't make a big deal abt my plurality please.
+- I am very uncomfortable around heavy antitheists. Please do not harass me for my religion, and avoid all convo about religion if you are against catholicism/christianity!
+- I would rather not be spoiled for Bleach, thank you!
 
-I have a very mild touch trigger. C+H is fine ALWAYS (unless on busy), but please do not excessively boop me or act out strange things with my pony. it makes me ridiculously uncomfortable. Kissing from non-friends also makes me mildly uncomfy
+*DNI!*
+- basic dni / TRASH
+- zionists / MAGA / weird political beliefs / overly political
+- proship/darkship[I AM AWARE OF THE CORRECT LABELS.]
+- lesboys/turigirls/wateva . stop  using problematic labels and then we'll talk
+- endogenic 'systems'
+- fandom dnis: countryhuman, vivziepop/helluva/hazbin, dsmp, alfred's playhouse
+- ai chatbot users / pro ai / wateva
+- radqueer/transmed/transcum/chaser
+- anti-therian/anti-yume/anti-furry/anti-kin/anti-neopronouns/anti-xenogenders
 
-easily overwhelmed, yes pixels on my screen can stress me out
-
-do NOT flirt with me. PERIOD. it makes me really uncomfy esp as i have a bf
-
-c+h always! i like making new friends. the only time i say not to int if my thing is on busy or im on dni
-
-please do not insult ships i enjoy or comf characters of mine. these mainly include:
-- shadowsugar
-- satosugu
-- shadowvanilla
-- hollytaya
-- firewind
-- ashfire (lord of ash x fire spirit)
-- ravenwind (night raven x wind archer)
-- purecluse (pv x recluse)
-- eldersalt
-- purecacao
-- burningcacao
-- goldenlily
-- vox (hazbin)
-- N (pokemon)
-- luka (alnst)
-- flins (genshin)
-- kaveh (genshin)
-- shadow milk cookie
-- butter roll cookie
-- gim cookie
-
-dni
-- basic dni
-- pr0ship / darkship (youll notice i ship a lot of selfcest. comshipping is completely ok as long as it isn't illegal content)
-- lesboys / gaygirls
-- obnoxious people
-- hazbin/helluva fandom
-- people who vent out of nowhere
-- overly rude / mean people
-
-byi
-- i am easily overwhelmed
-- if i am on busy, dniuf and iwc.
-- i dont put it in my pt stuff(since people really enjoy to harass dnt ponies.) but i prefer not to be touched ingame. booping and c/h is fine (if c/h is listed on pony name) but dont be a freak in game to me it makes me uncomfy. "it's just pixels" but you're harassing me :eyes:
-- dont make weird comments about characters if im in a cos. i am not that character.
-- i like comfort from friends when im on busy. i'm not expecting anything, ofc. if we're conversing and i get overwhelmed ill ask to move or stay in whispers so i can distract myself from whatevers going on.
-
-i hide people i dont like. i dont have many hidden but if you pmo and i stop responding youre probably hidden
-
-i dont friend people i dont know well
-
-thats it..! ily ponytown
-
-<!--
-**Novvss/Novvss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**FANDOMS!**
+- jojo! (current main!)
+- gachiakuta
+- jjk
+- deltarune/undertale
+- kny
+- cookie run(though I prefer not to interact with most of the crk area)
+- minecraft args
+- phighting
+- ultrakill
+- zelda
