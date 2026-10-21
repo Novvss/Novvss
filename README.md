@@ -14,6 +14,9 @@ do not use they/them on me. my pronouns are he/it and nothing else! thank you
 - I am PLURAL. my ponies are attached to different alters, but me switching ponies does NOT account to a switch. MOST alters will have multiple ponies they like to have, and may not even have a pony to represent themself yet. Don't make a big deal abt my plurality please.
 - I am very uncomfortable around heavy antitheists. Please do not harass me for my religion, and avoid all convo about religion if you are against catholicism/christianity!
 - I would rather not be spoiled for Bleach, thank you!
+- some of my fictives are uncomfy talking with yumes of them. Please do not act romantically with my fictives, thanks
+- **DOUBLES IWEC + DO NOT MENTION! MY YUMES ARE:** ukitake, neuvillette, illumi, remielle dan **AND MY FICTKINS ARE:** diego brando, mahito, ace(onepiece), tamsy, sunday, and flins.
+- do not mention needles, medical situations, or animal death without asking first.
 
 *DNI!*
 - basic dni / TRASH
@@ -37,3 +40,5 @@ do not use they/them on me. my pronouns are he/it and nothing else! thank you
 - phighting
 - ultrakill
 - zelda
+- genshin/zzz
+- one piece
