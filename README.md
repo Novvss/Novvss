@@ -1,7 +1,7 @@
 # SKIBIDITOILET69
 ## Skib / jasper / ezra / novus
 
-he / it . transmasc genderqueer . bi . 15 . audhd anxiety
+he / it . transmasc genderqueer . bi . 16 . audhd anxiety
 
 # I AM EXTREMELY LOW EMPATHY! PLEASE KEEP THIS IN MIND WHEN INTERACTING WITH ME!
 
