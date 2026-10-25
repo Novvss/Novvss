@@ -54,7 +54,9 @@ Ships iwc, UNLESS:
 - jolermes
 - anasuireport
 - (iim lowk chill with most stone ocean maincast ships tbf)
+
 these ships may int!!
+
 and please dni:
 - anything illegal
 - anything that erases rep(basically any gyro/johnny ships)
