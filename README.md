@@ -43,3 +43,19 @@ do not use they/them on me. my pronouns are he/it and nothing else! thank you
 - zelda
 - genshin/zzz
 - one piece
+
+Ships iwc, UNLESS:
+- diegopants
+- gyjo
+- anything canon
+- jokuyasu
+- ceaseph
+- anasuyne
+- jolermes
+- anasuireport
+- (iim lowk chill with most stone ocean maincast ships tbf)
+these ships may int!!
+and please dni:
+- anything illegal
+- anything that erases rep(basically any gyro/johnny ships)
+- anything shown in canon as toxic(like what kira did)
